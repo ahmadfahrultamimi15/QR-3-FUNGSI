@@ -1,1 +1,0 @@
-# QR-4-FUNGSI
